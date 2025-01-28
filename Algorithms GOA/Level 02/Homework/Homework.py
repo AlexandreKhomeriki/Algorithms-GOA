@@ -1,0 +1,1 @@
+# Topuriashi matematikuri davaleba cota xanshi avtvirtav
